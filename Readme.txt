@@ -1,0 +1,1 @@
+9000+ Tweets sent out between 6am and 10am South African time.
